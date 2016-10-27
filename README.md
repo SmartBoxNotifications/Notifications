@@ -1,0 +1,2 @@
+# Notifications
+Smart Box Notifications
