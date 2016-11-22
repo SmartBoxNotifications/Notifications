@@ -1,11 +1,11 @@
-4 
+S5 
 ||| 
-Football Fans
-Please run our wizard to get Adrian Sports
-working again
+Black Friday Sales Week
 
-Did you know we now stock tablets?
-we will also be launching our retro games console with 2k games
-Please visit our Facebook page:
-"Smart Box Installations" Enjoy!
+Firesticks & 4k Android TV Boxes
+Reduced To Only £50
 
+Offer Ends Sunday 27th
+
+Share Our Facebook Post To Be In With A Chance To Win
+A L.E.D TV Backlight, Draw Takes Place MON 28th
