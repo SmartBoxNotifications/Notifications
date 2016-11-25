@@ -1,11 +1,13 @@
-S5 
+S6 
 ||| 
-Black Friday Sales Week
+Black Friday One Day Offer
 
-Firesticks & 4k Android TV Boxes
-Reduced To Only £50
+Firesticks
+1 for £45
+2 for £80
+3 for £115
+4 for £140
 
-Offer Ends Sunday 27th
+Keep checking our facebook page for any other offers we may have
 
-Share Our Facebook Post To Be In With A Chance To Win
-A L.E.D TV Backlight, Draw Takes Place MON 28th
+Enjoy :)
